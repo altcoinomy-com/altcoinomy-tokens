@@ -1,0 +1,1 @@
+# altcoinomy-tokens
